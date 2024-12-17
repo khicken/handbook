@@ -1,4 +1,4 @@
 # handbook
 the internet's handbook
 
-free, open-source designed for everyone especially the younger generations
+working on social media section, contact bike@case.edu if interested
